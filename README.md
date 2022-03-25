@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Rezahfern
+- 👀 I’m interested in Video Games, Creative Writing, Solving Problems
+- 🌱 I’m currently learning in being open to – or seeking out – new experiences, skills and information that improve our abilities and enjoyment.
+- 💞️ i am looking forward to collaborate with people who are looking for an excellent and hardworking personal assistant
+- 📫 How to reach me on my Upwork Profile https://www.upwork.com/freelancers/~0164ff4f68d2003580 and facebook https://www.facebook.com/rezah.fern.96/
